@@ -1,1 +1,1 @@
-          # Exposing More Stress Shot
+# Exposing More Stress Shot
