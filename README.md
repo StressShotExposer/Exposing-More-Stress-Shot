@@ -62,6 +62,21 @@ View Real:
 https://www.aliexpress.com/item/1005006235729213.html?spm=a2g0o.productlist.main.73.4df0y7KIy7KIWW&algo_pvid=e5c54fea-1902-4ac0-ac45-65778c4ea794&algo_exp_id=e5c54fea-1902-4ac0-ac45-65778c4ea794-36&pdp_npi=4%40dis%21USD%213.23%213.23%21%21%2123.31%2123.31%21%40211b600517120821380065796e2f64%2112000036406193890%21sea%21PL%214807384073%21&curPageLogUid=870aC8QdFnXT&utparam-url=scene%3Asearch%7Cquery_from%3A
 
 
+
+![ezgif-1-ac4bbf7e4b](https://github.com/StressShotExposer/Exposing-More-Stress-Shot/assets/165801377/d7a5b414-d439-4975-b0b8-caf16d9b5640)
+
+
+
+
+
+
+# Cobra Stress Shot
+
+
+View Real:
+
+https://www.kublai.shop/products/3d-printed-glock-shell-eject-blaster-fidget-stress-relief-toy-gun
+
 ## Subscribe to GMONX and Me
 
 
