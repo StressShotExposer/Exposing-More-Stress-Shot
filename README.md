@@ -46,6 +46,14 @@ https://www.dhgate.com/product/toy-gun-akm-electric-soft-bullet-shell-ejection/8
 
 
 
+![ezgif-1-aa5c33120a](https://github.com/StressShotExposer/Exposing-More-Stress-Shot/assets/165801377/c9cd3a53-1a8a-47ad-8da3-34f7658ea202)
+
+
+
+
+
+
+# Widow Stress Shot
 
 ## Subscribe to GMONX and Me
 
