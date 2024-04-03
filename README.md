@@ -102,6 +102,53 @@ https://www.temu.com/carrot-knife-3d-gravity-plastic-pocket-knife-decompression-
 
 
 
+
+
+![ezgif-3-9acd12ba30](https://github.com/StressShotExposer/Exposing-More-Stress-Shot/assets/165801377/896c8485-0fd3-406f-8740-52b9a5b28253)
+
+
+
+
+
+# Peace Katana
+
+
+
+
+
+View Real:
+
+
+
+
+https://www.printables.com/pl/model/543260-collapsing-katana-v2-print-in-place
+
+
+
+
+![ezgif-7-7703cb2b05](https://github.com/StressShotExposer/Exposing-More-Stress-Shot/assets/165801377/d6d4c3df-e5e0-4f1a-acc5-3c9f5b435b47)
+
+
+
+
+
+# Peace G
+
+
+
+
+
+
+View Real:
+
+
+
+
+https://dartarmoury.com/products/x2-carry-pistol-semiautomatic-blowback
+
+
+
+
 ## Subscribe to GMONX and Me
 
 
