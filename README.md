@@ -24,7 +24,7 @@ View Real:
 
 
 View Real:
-[Your Link Here]https://www.aliexpress.us/item/3256805939490710.html?src=google&aff_fcid=baf90ebc044442da9a1993c942b01743-1712067842241-02594-UneMJZVf&aff_fsk=UneMJZVf&aff_platform=aaf&sk=UneMJZVf&aff_trace_key=baf90ebc044442da9a1993c942b01743-1712067842241-02594-UneMJZVf&terminal_id=571e0bacbb564b2798beeab75e0f417a&afSmartRedirect=y&gatewayAdapt=glo2usa4itemAdapt
+[AliExpress](https://www.aliexpress.us/item/3256805939490710.html?src=google&aff_fcid=baf90ebc044442da9a1993c942b01743-1712067842241-02594-UneMJZVf&aff_fsk=UneMJZVf&aff_platform=aaf&sk=UneMJZVf&aff_trace_key=baf90ebc044442da9a1993c942b01743-1712067842241-02594-UneMJZVf&terminal_id=571e0bacbb564b2798beeab75e0f417a&afSmartRedirect=y&gatewayAdapt=glo2usa4itemAdapt)
 
 
 
@@ -38,7 +38,7 @@ View Real:
 
 
 View Real:
-[Your Link Here]https://www.dhgate.com/product/toy-gun-akm-electric-soft-bullet-shell-ejection/813396643.html#ENhp-en
+[DhGate](https://www.dhgate.com/product/toy-gun-akm-electric-soft-bullet-shell-ejection/813396643.html#ENhp-en)
 
 
 
@@ -59,7 +59,7 @@ View Real:
 View Real:
 
 
-[Your Link Here]https://www.aliexpress.com/item/1005006235729213.html?spm=a2g0o.productlist.main.73.4df0y7KIy7KIWW&algo_pvid=e5c54fea-1902-4ac0-ac45-65778c4ea794&algo_exp_id=e5c54fea-1902-4ac0-ac45-65778c4ea794-36&pdp_npi=4%40dis%21USD%213.23%213.23%21%21%2123.31%2123.31%21%40211b600517120821380065796e2f64%2112000036406193890%21sea%21PL%214807384073%21&curPageLogUid=870aC8QdFnXT&utparam-url=scene%3Asearch%7Cquery_from%3A
+[AliExpress](https://www.aliexpress.com/item/1005006235729213.html?spm=a2g0o.productlist.main.73.4df0y7KIy7KIWW&algo_pvid=e5c54fea-1902-4ac0-ac45-65778c4ea794&algo_exp_id=e5c54fea-1902-4ac0-ac45-65778c4ea794-36&pdp_npi=4%40dis%21USD%213.23%213.23%21%21%2123.31%2123.31%21%40211b600517120821380065796e2f64%2112000036406193890%21sea%21PL%214807384073%21&curPageLogUid=870aC8QdFnXT&utparam-url=scene%3Asearch%7Cquery_from%3A)
 
 
 
@@ -75,7 +75,7 @@ View Real:
 
 View Real:
 
-[Your Link Here]https://www.kublai.shop/products/3d-printed-glock-shell-eject-blaster-fidget-stress-relief-toy-gun
+[Kublai](https://www.kublai.shop/products/3d-printed-glock-shell-eject-blaster-fidget-stress-relief-toy-gun)
 
 
 
@@ -98,7 +98,7 @@ View Real:
 
 
 
-[Your Link Here]https://www.temu.com/carrot-knife-3d-gravity-plastic-pocket-knife-decompression-push-tag-small-toy-fun-gravity-small-carrot-knife-g-601099527123265.html?_oak_mp_inf=EMHip56m1ogBGiAwM2M0ZDY0MmFjYjQ0YjQ5OWE1NThmNGNkZDM5OWViZCDmiIqi6jE%3D&top_gallery_url=https%3A%2F%2Fimg.kwcdn.com%2Fproduct%2FFancyalgo%2FVirtualModelMatting%2Fa716ae997a2e22b8088420c14792f08d.jpg&spec_gallery_id=2044911590&refer_page_sn=10009&refer_source=0&freesia_scene=2&_oak_freesia_scene=2&_oak_rec_ext_1=MTEz&search_key=carrot%20knife%20toy&refer_page_el_sn=200049&refer_page_name=search_result&refer_page_id=10009_1712152768238_j0bgzw06oz&_x_sessn_id=jteeeio0eh
+[TEMU](https://www.temu.com/carrot-knife-3d-gravity-plastic-pocket-knife-decompression-push-tag-small-toy-fun-gravity-small-carrot-knife-g-601099527123265.html?_oak_mp_inf=EMHip56m1ogBGiAwM2M0ZDY0MmFjYjQ0YjQ5OWE1NThmNGNkZDM5OWViZCDmiIqi6jE%3D&top_gallery_url=https%3A%2F%2Fimg.kwcdn.com%2Fproduct%2FFancyalgo%2FVirtualModelMatting%2Fa716ae997a2e22b8088420c14792f08d.jpg&spec_gallery_id=2044911590&refer_page_sn=10009&refer_source=0&freesia_scene=2&_oak_freesia_scene=2&_oak_rec_ext_1=MTEz&search_key=carrot%20knife%20toy&refer_page_el_sn=200049&refer_page_name=search_result&refer_page_id=10009_1712152768238_j0bgzw06oz&_x_sessn_id=jteeeio0eh)
 
 
 
@@ -121,7 +121,7 @@ View Real:
 
 
 
-[Your Link Here]https://www.printables.com/pl/model/543260-collapsing-katana-v2-print-in-place
+[Printables](https://www.printables.com/pl/model/543260-collapsing-katana-v2-print-in-place)
 
 
 
@@ -144,7 +144,7 @@ View Real:
 
 
 
-[Your Link Here]https://dartarmoury.com/products/x2-carry-pistol-semiautomatic-blowback
+[Dartamoury (Even when Peace Pistol's cheaper, dont buy it)](https://dartarmoury.com/products/x2-carry-pistol-semiautomatic-blowback)
 
 
 
@@ -165,7 +165,7 @@ View Real:
 
 
 
-[Your Link Here]https://www.amazon.com/Tovol-Zerky-Blaster-Shotgun-Ejection/dp/B09NV191F3/ref=sr_1_2?crid=E6O9R412V308&dib=eyJ2IjoiMSJ9.oESc--KplDaNujD-TU5QUhiE4gYMLrOqkYjq_WauZ-kC-OolLFKUs7UzAUlu9VH_JkynYHDaE_qZ2gcM0otjQHCo6owuZPC0fqH8-8siVYOuxpUm23jA2b5OBpUsRhNiCStrbZOIz3SNkjdoHbvJT9ED95uZN_8TTfoTIutJTAfyWKJBe_x5kn8yjjnchXSGowFagwT8brG_hQF7XKHSNo0L_maSlj861tK8zKdStNGPmAzs0M-rj7uEVtMkCDvhxTx5y0FmYFzHwv0bBy4zICcsPVcZAJC1wsOV8i-v3MU.ZXA59z_g15AC7rxnPH5aMBAgymhPH8uYNL2F30LVGMU&dib_tag=se&keywords=shooting%2Bsoft%2Bbullet%2Blauncher&qid=1712159328&sprefix=shooting%2Bsoft%2Bbulle%2Caps%2C200&sr=8-2&th=1
+[Amazon](https://www.amazon.com/Tovol-Zerky-Blaster-Shotgun-Ejection/dp/B09NV191F3/ref=sr_1_2?crid=E6O9R412V308&dib=eyJ2IjoiMSJ9.oESc--KplDaNujD-TU5QUhiE4gYMLrOqkYjq_WauZ-kC-OolLFKUs7UzAUlu9VH_JkynYHDaE_qZ2gcM0otjQHCo6owuZPC0fqH8-8siVYOuxpUm23jA2b5OBpUsRhNiCStrbZOIz3SNkjdoHbvJT9ED95uZN_8TTfoTIutJTAfyWKJBe_x5kn8yjjnchXSGowFagwT8brG_hQF7XKHSNo0L_maSlj861tK8zKdStNGPmAzs0M-rj7uEVtMkCDvhxTx5y0FmYFzHwv0bBy4zICcsPVcZAJC1wsOV8i-v3MU.ZXA59z_g15AC7rxnPH5aMBAgymhPH8uYNL2F30LVGMU&dib_tag=se&keywords=shooting%2Bsoft%2Bbullet%2Blauncher&qid=1712159328&sprefix=shooting%2Bsoft%2Bbulle%2Caps%2C200&sr=8-2&th=1)
 
 
 
