@@ -144,7 +144,7 @@ View Real:
 
 
 
-[Dartamoury (Even when Peace Pistol's cheaper, dont buy it)](https://dartarmoury.com/products/x2-carry-pistol-semiautomatic-blowback)
+[Dartamoury (Even when Peace Pistol's cheaper, dont buy Peace Pistol)](https://dartarmoury.com/products/x2-carry-pistol-semiautomatic-blowback)
 
 
 
