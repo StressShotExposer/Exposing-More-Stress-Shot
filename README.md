@@ -1,4 +1,4 @@
-# Exposing More Stress Shot
+# Exposing More Stress Shot And Other Dropshippers
 ## Here are more Stress Shot guns that were dropshipped
 
 
@@ -85,7 +85,7 @@ https://www.kublai.shop/products/3d-printed-glock-shell-eject-blaster-fidget-str
 
 
 
-
+# Here are Peace Pistol Stuff
 
 
 
