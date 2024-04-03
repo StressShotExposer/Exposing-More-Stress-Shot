@@ -149,6 +149,30 @@ https://dartarmoury.com/products/x2-carry-pistol-semiautomatic-blowback
 
 
 
+
+![ezgif-5-1378230f66](https://github.com/StressShotExposer/Exposing-More-Stress-Shot/assets/165801377/521430b4-fc96-40a0-bfe3-741ddb2c28fc)
+
+
+
+
+
+
+# Peace Thunder
+
+
+
+View Real:
+
+
+
+https://www.amazon.com/Tovol-Zerky-Blaster-Shotgun-Ejection/dp/B09NV191F3/ref=sr_1_2?crid=E6O9R412V308&dib=eyJ2IjoiMSJ9.oESc--KplDaNujD-TU5QUhiE4gYMLrOqkYjq_WauZ-kC-OolLFKUs7UzAUlu9VH_JkynYHDaE_qZ2gcM0otjQHCo6owuZPC0fqH8-8siVYOuxpUm23jA2b5OBpUsRhNiCStrbZOIz3SNkjdoHbvJT9ED95uZN_8TTfoTIutJTAfyWKJBe_x5kn8yjjnchXSGowFagwT8brG_hQF7XKHSNo0L_maSlj861tK8zKdStNGPmAzs0M-rj7uEVtMkCDvhxTx5y0FmYFzHwv0bBy4zICcsPVcZAJC1wsOV8i-v3MU.ZXA59z_g15AC7rxnPH5aMBAgymhPH8uYNL2F30LVGMU&dib_tag=se&keywords=shooting%2Bsoft%2Bbullet%2Blauncher&qid=1712159328&sprefix=shooting%2Bsoft%2Bbulle%2Caps%2C200&sr=8-2&th=1
+
+
+
+
+
+
+
 ## Subscribe to GMONX and Me
 
 
