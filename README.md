@@ -173,13 +173,52 @@ View Real:
 
 
 
+
+
+
+
+![80228da07byb1](https://github.com/StressShotExposer/Exposing-More-Stress-Shot/assets/165801377/4c9bd49b-f512-4a54-8d4d-3e34b5aa5565)
+
+
+
+
+
+![ezgif-5-569e8f4c05](https://github.com/StressShotExposer/Exposing-More-Stress-Shot/assets/165801377/89385934-27cc-4b5f-9b5f-2888465089e0)
+
+
+
+
+
+
+
+
+# Metal Design Titan Stress Shot(No other variants because if you click the raptor stress shot on GMONX's link then you have the titan)
+
+
+
+
+
+
+
+View Real:
+
+[Alibaba](https://www.alibaba.com/product-detail/_1601046847085.html?spm=a2700.7724857.0.0.5ed632d6IwQ7Xz)
+
+
+
+
+
+
+
 ## Subscribe to GMONX and Me
 
 
 
 
 
- ## My Channel: https://www.youtube.com/@LimetlessRoblox
+
+
+## My Channel: https://www.youtube.com/@LimetlessRoblox
 
 
 
