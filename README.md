@@ -252,6 +252,41 @@ View Real:
 
 
 
+
+
+
+
+
+
+
+
+![ezgif-5-b59144d7e3](https://github.com/StressShotExposer/Exposing-More-Stress-Shot/assets/165801377/e5adad76-7d04-4504-914b-c98c71794eaa)
+
+
+
+
+
+
+
+
+
+
+
+# Thunder Stress Shot (Requested by Sure-yt)
+
+
+
+
+
+
+View Real:
+
+
+
+https://www.temu.com/double-barrel-toy-gun-high-range-87-long-toy-gun-rifle-long-double-barrel-shotgun-toy-foam-blaster-toy-gun-ammunition-toy-with-scope-outdoor-shooting-training-toys-simulation-gun-type-g-601099520565250.html
+
+
+
 ## Subscribe to GMONX and Me
 
 
