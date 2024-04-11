@@ -210,6 +210,48 @@ View Real:
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+![ezgif-2-f714288fc3](https://github.com/StressShotExposer/Exposing-More-Stress-Shot/assets/165801377/fe2c3f09-2a08-417e-a234-807405a0abf5)
+
+
+
+
+
+
+
+
+
+
+
+
+
+# Mega Raptor Stress Shot
+
+
+
+
+
+
+
+View Real:
+
+
+
+https://www.amazon.co.uk/Toy-soft-bullets-ejectable-magazine/dp/B0CJQZ5T45?currency=USD
+
+
+
+
 ## Subscribe to GMONX and Me
 
 
