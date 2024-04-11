@@ -283,7 +283,7 @@ View Real:
 
 
 
-https://www.temu.com/double-barrel-toy-gun-high-range-87-long-toy-gun-rifle-long-double-barrel-shotgun-toy-foam-blaster-toy-gun-ammunition-toy-with-scope-outdoor-shooting-training-toys-simulation-gun-type-g-601099520565250.html
+[TEMU](https://www.temu.com/double-barrel-toy-gun-high-range-87-long-toy-gun-rifle-long-double-barrel-shotgun-toy-foam-blaster-toy-gun-ammunition-toy-with-scope-outdoor-shooting-training-toys-simulation-gun-type-g-601099520565250.html)
 
 
 
