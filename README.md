@@ -247,7 +247,7 @@ View Real:
 
 
 
-https://www.amazon.co.uk/Toy-soft-bullets-ejectable-magazine/dp/B0CJQZ5T45?currency=USD
+[Amazon](https://www.amazon.co.uk/Toy-soft-bullets-ejectable-magazine/dp/B0CJQZ5T45?currency=USD)
 
 
 
