@@ -7,7 +7,7 @@
 
 
 # Sentinel stress shot
-View Real:
+## View Real:
 [Zhenduo Blaster](https://www.zhenduoblaster.com/LC-MG3-Electric-Shell-Eject-Foam-Dart-Blaster-Toy-Gun-p23087812.html)
 
 
@@ -23,7 +23,7 @@ View Real:
 
 
 
-View Real:
+## View Real:
 [AliExpress](https://www.aliexpress.us/item/3256805939490710.html?src=google&aff_fcid=baf90ebc044442da9a1993c942b01743-1712067842241-02594-UneMJZVf&aff_fsk=UneMJZVf&aff_platform=aaf&sk=UneMJZVf&aff_trace_key=baf90ebc044442da9a1993c942b01743-1712067842241-02594-UneMJZVf&terminal_id=571e0bacbb564b2798beeab75e0f417a&afSmartRedirect=y&gatewayAdapt=glo2usa4itemAdapt)
 
 
@@ -37,7 +37,7 @@ View Real:
 
 
 
-View Real:
+## View Real:
 [DhGate](https://www.dhgate.com/product/toy-gun-akm-electric-soft-bullet-shell-ejection/813396643.html#ENhp-en)
 
 
@@ -53,10 +53,10 @@ View Real:
 
 
 
-# Widow Stress Shot
+# Widow Stress Shot (OG)
 
 
-View Real:
+## View Real:
 
 
 [AliExpress](https://www.aliexpress.com/item/1005006235729213.html?spm=a2g0o.productlist.main.73.4df0y7KIy7KIWW&algo_pvid=e5c54fea-1902-4ac0-ac45-65778c4ea794&algo_exp_id=e5c54fea-1902-4ac0-ac45-65778c4ea794-36&pdp_npi=4%40dis%21USD%213.23%213.23%21%21%2123.31%2123.31%21%40211b600517120821380065796e2f64%2112000036406193890%21sea%21PL%214807384073%21&curPageLogUid=870aC8QdFnXT&utparam-url=scene%3Asearch%7Cquery_from%3A)
@@ -73,7 +73,7 @@ View Real:
 # Cobra Stress Shot
 
 
-View Real:
+## View Real:
 
 [Kublai](https://www.kublai.shop/products/3d-printed-glock-shell-eject-blaster-fidget-stress-relief-toy-gun)
 
@@ -94,7 +94,7 @@ View Real:
 
 
 
-View Real:
+## View Real:
 
 
 
@@ -116,7 +116,7 @@ View Real:
 
 
 
-View Real:
+## View Real:
 
 
 
@@ -139,7 +139,7 @@ View Real:
 
 
 
-View Real:
+## View Real:
 
 
 
@@ -161,7 +161,7 @@ View Real:
 
 
 
-View Real:
+## View Real:
 
 
 
@@ -200,7 +200,7 @@ View Real:
 
 
 
-View Real:
+## View Real:
 
 [DhGate](https://www.dhgate.com/product/g17-glock-pistol-soft-bullet-toy-gun-manual/735442031.html?skuid=966469596471316489)
 
@@ -243,7 +243,7 @@ View Real:
 
 
 
-View Real:
+## View Real:
 
 
 
@@ -279,11 +279,49 @@ View Real:
 
 
 
-View Real:
+## View Real:
 
 
 
 [TEMU](https://www.temu.com/double-barrel-toy-gun-high-range-87-long-toy-gun-rifle-long-double-barrel-shotgun-toy-foam-blaster-toy-gun-ammunition-toy-with-scope-outdoor-shooting-training-toys-simulation-gun-type-g-601099520565250.html)
+
+
+
+
+
+
+
+
+
+
+
+
+
+![ezgif-2-d09cabb81d](https://github.com/StressShotExposer/Exposing-More-Stress-Shot/assets/165801377/89ae0ea8-cf16-480d-87dd-ef6fa0d50dc3)
+
+
+
+
+
+
+
+
+# Omega Stress Shot
+
+
+
+
+
+
+
+## View Real:
+
+
+
+
+
+
+
 
 
 
